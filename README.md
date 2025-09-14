@@ -1,1 +1,1 @@
-https://skit82.github.io/rsschool-cv/cv
+https://skit82.github.io/rsschool-cv/
